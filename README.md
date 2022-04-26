@@ -1,2 +1,0 @@
-# shiningsandeep
-sandeep kaur
